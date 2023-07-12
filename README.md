@@ -1,4 +1,4 @@
-HEY 👋  , I'M Brijesh .
+ HEY 👋  , I'M Brijesh .
 
 I'm currently a fresh graduate student 👔 from a university of UOW with degree in cs.I am working on some side projects and learning new technologies along with it and I love techs . 
 
